@@ -1,0 +1,1 @@
+# Language-Pack-Kannada-for-DiscordPlus
